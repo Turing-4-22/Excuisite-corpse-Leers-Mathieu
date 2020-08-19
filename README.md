@@ -8,3 +8,4 @@ ________________________________
 - Ca s'voit...
 - Le Nain : Et ça , c'est le donjon ?  
 - Effectivement !
+- Moi je prends juste des photos
