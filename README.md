@@ -11,3 +11,9 @@ ________________________________
 - Moi je prends juste des photos
 - Mais qui êtes-vous 
 
+
+Let's play another game! (mais Chaussettes quand même)
+
+- Ca sent le souffre...
+- Mais c'est pas moi !
+
